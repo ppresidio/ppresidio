@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... My computer background
 - 📫 How to reach me: ... Email: presidip@wncc.edu
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I'm from Brazil
+- ⚡ Fun fact: ... I'm from Brazil!
 -->
